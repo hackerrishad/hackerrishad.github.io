@@ -1,1 +1,0 @@
-# hackerrishad.github.io
